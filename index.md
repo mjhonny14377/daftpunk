@@ -2,8 +2,8 @@ sayyed vakar durga shaik
 ============
 
 -------------------     ----------------------------
-Gmail                        mjhonny14377@gmail.com
-                          @twitter_handle
+*Gmail                        mjhonny14377@gmail.com
+*rollnum                       L19IT130
 MyCountry                           1800 my-phone-nr
 -------------------     ----------------------------
 
